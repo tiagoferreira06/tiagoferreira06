@@ -5,3 +5,4 @@
 👥 Membro do NEAAIPCA desde 2023
 
 🔗 [LinkedIn](https://www.linkedin.com/in/tiago-ferreira-a707361ba/)
+📫 Discord: zuca32
